@@ -9,7 +9,7 @@ and traps, without the use of any bands, weights, or pull-up bars. Using everyda
 water bottles, paper, books, and towels (and a little bit of creativity), Pick 5 Home Fitness is able to effectively train 
 these difficult muscle groups, often forgotten by traditional equipment-less fitness programs.
 
-Each exercise contains a complete description and visual demonstration to making it easy for anyone to follow a workout. 
+Each exercise contains a complete description and visual demonstration making it easy for anyone to follow a workout. 
 Recommended set and rep ranges ensure anyone can reach the proper training stimulus needed for muscle growth. Each exercise, 
 as well as the corresponding set and rep range, were created by and tested on high caliber athletes to ensure their quality.
 
